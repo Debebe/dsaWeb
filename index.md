@@ -1,3 +1,4 @@
-Welcome
+Welcome to my homepage
 
-Here are things to do
+Here are some stuff to do by Monday. 
+
